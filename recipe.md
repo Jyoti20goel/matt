@@ -1,0 +1,2 @@
+In a blender, blend together ice cream and milk. 
+Pour into a glass and garnish with whipped topping, sprinkles, and a cherry.
